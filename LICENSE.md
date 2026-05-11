@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots Script exclusive offers the most advanced plants vs brainrots Script, with instant win and one-hit kill. Perfect for dominating
 
 
 
